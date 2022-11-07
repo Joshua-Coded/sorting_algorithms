@@ -1,5 +1,5 @@
 Background Context
-This project was done by JOSHUA ALANA AND ASIWAJU JOSHUA 
+This project was done by JOSHUA ALANA   AND ASIWAJU JOSHUA 
 
 Resources
 Read or watch:
